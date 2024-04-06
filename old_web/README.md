@@ -1,0 +1,1 @@
+Stara cesta jak delat web
