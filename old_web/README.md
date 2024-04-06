@@ -1,1 +1,1 @@
-Stara cesta jak delat web
+giStara cesta jak delat web
